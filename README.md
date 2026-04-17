@@ -1,1 +1,0 @@
-# Whickd-07.github.io
